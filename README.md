@@ -1,5 +1,7 @@
 # DDoS_botnet_cnc-panel
 new Mirai of ddos tool
+selling and help
+if you need pls chat me ！~
 Email:aoabos@outlook.com
 sell by Telegram ： https://t.me/token7789
 #### screenphoto
