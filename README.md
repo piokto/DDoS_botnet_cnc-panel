@@ -2,6 +2,7 @@
 new Mirai of ddos tool
 selling and help
 if you need pls chat me ！~
+ddos panel
 Email:aoabos@outlook.com
 sell by Telegram ： https://t.me/token7789
 #### screenphoto
